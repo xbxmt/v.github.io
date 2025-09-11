@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [“暑假回来”：一堂关于信仰、艺术、文明的分享（下）](https://www.asuswebstorage.com/navigate/a/#/s/0BD82DBAE0A24CAA909E3ACFC8CC42E1Y)<br>
+------------------------------------------------------
 * [“暑假回来”：一堂关于信仰、艺术、文明的分享](https://www.asuswebstorage.com/navigate/a/#/s/FC41C450C9854EF49ADB4173DBA9016EY)<br>
 ------------------------------------------------------
 * [“看不见的手”：文明兴衰背后的法律信仰之战](https://www.asuswebstorage.com/navigate/a/#/s/2D18A3389DFB44C4BD87AFE06D391E9AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/3B086445AA244147A23B97A657B7BA3AY)
