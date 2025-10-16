@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [风暴：从经济博弈到灵魂争战](https://www.asuswebstorage.com/navigate/a/#/s/74DEF2CEFDEB49B8B4D7470CADB6F2F6Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C7DE8459C8234CCA9096CBD42A718A98Y)
+------------------------------------------------------
 * [查理·柯克与比特币：从公共信仰到财富管家](https://www.asuswebstorage.com/navigate/a/#/s/48393F8F6CDC494A95795189881579DDY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1FE8BC9D8CD2456D816297017C44341FY)
 ------------------------------------------------------
 * [“暑假回来”：一堂关于信仰、艺术、文明的分享（下）](https://www.asuswebstorage.com/navigate/a/#/s/0BD82DBAE0A24CAA909E3ACFC8CC42E1Y)<br>
