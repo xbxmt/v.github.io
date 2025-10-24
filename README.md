@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [保守主义的伟大胜利：日本战后重生的文明密码](https://www.asuswebstorage.com/navigate/a/#/s/74B9BF7DD5A74E788494CA0EA5D0B9B6Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CF2C6A82031C4B219CEA11A6CEC2AE95Y)
+------------------------------------------------------
 * [风暴：从经济博弈到灵魂争战](https://www.asuswebstorage.com/navigate/a/#/s/74DEF2CEFDEB49B8B4D7470CADB6F2F6Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C7DE8459C8234CCA9096CBD42A718A98Y)
 ------------------------------------------------------
 * [查理·柯克与比特币：从公共信仰到财富管家](https://www.asuswebstorage.com/navigate/a/#/s/48393F8F6CDC494A95795189881579DDY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1FE8BC9D8CD2456D816297017C44341FY)
