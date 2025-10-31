@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [为什么中国有技术，却没有文明性的创新？——从 2025 年诺贝尔经济学奖看“创新—持续增长”的三大前提](https://www.asuswebstorage.com/navigate/a/#/s/06A884D45A96470BA4469C4BA1B48EE7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/FB9A8C2420A042FA85F66A277D9D618EY)
+------------------------------------------------------
 * [保守主义的伟大胜利：日本战后重生的文明密码](https://www.asuswebstorage.com/navigate/a/#/s/74B9BF7DD5A74E788494CA0EA5D0B9B6Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CF2C6A82031C4B219CEA11A6CEC2AE95Y)
 ------------------------------------------------------
 * [风暴：从经济博弈到灵魂争战](https://www.asuswebstorage.com/navigate/a/#/s/74DEF2CEFDEB49B8B4D7470CADB6F2F6Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C7DE8459C8234CCA9096CBD42A718A98Y)
