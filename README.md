@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [“思想市场”：诺贝尔奖的智慧与启示——文明增长的自由之源](https://www.asuswebstorage.com/navigate/a/#/s/C9A25BCD03AA412683FD5E0BA0828C37Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/27886063579F45BC9F0E35975F8D0B35Y)
+------------------------------------------------------
 * [为什么中国有技术，却没有文明性的创新？——从 2025 年诺贝尔经济学奖看“创新—持续增长”的三大前提](https://www.asuswebstorage.com/navigate/a/#/s/06A884D45A96470BA4469C4BA1B48EE7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/FB9A8C2420A042FA85F66A277D9D618EY)
 ------------------------------------------------------
 * [保守主义的伟大胜利：日本战后重生的文明密码](https://www.asuswebstorage.com/navigate/a/#/s/74B9BF7DD5A74E788494CA0EA5D0B9B6Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CF2C6A82031C4B219CEA11A6CEC2AE95Y)
