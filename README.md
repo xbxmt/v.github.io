@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [理性与节制的新阶段：中美博弈中盘研判](https://www.asuswebstorage.com/navigate/a/#/s/0EDE378310744176B3B9ED4894095D9AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/32777DB814BD45B5B67F96C69A778116Y)
+------------------------------------------------------
 * [“思想市场”：诺贝尔奖的智慧与启示——文明增长的自由之源](https://www.asuswebstorage.com/navigate/a/#/s/C9A25BCD03AA412683FD5E0BA0828C37Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/27886063579F45BC9F0E35975F8D0B35Y)
 ------------------------------------------------------
 * [为什么中国有技术，却没有文明性的创新？——从 2025 年诺贝尔经济学奖看“创新—持续增长”的三大前提](https://www.asuswebstorage.com/navigate/a/#/s/06A884D45A96470BA4469C4BA1B48EE7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/FB9A8C2420A042FA85F66A277D9D618EY)
