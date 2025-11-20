@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [姓资姓社-美国向何处去？](https://www.asuswebstorage.com/navigate/a/#/s/6A9873F9AE744DEB9E9E6E14601E26B8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/892A76F80A1D4E64A7AEC1F68977E15FY)
+------------------------------------------------------
 * [理性与节制的新阶段：中美博弈中盘研判](https://www.asuswebstorage.com/navigate/a/#/s/0EDE378310744176B3B9ED4894095D9AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/32777DB814BD45B5B67F96C69A778116Y)
 ------------------------------------------------------
 * [“思想市场”：诺贝尔奖的智慧与启示——文明增长的自由之源](https://www.asuswebstorage.com/navigate/a/#/s/C9A25BCD03AA412683FD5E0BA0828C37Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/27886063579F45BC9F0E35975F8D0B35Y)
