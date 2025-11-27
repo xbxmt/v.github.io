@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [从英伟达财报透析中美博弈与“文明增长”——世界正在重塑：AI 驱动的第四次工业革命与新秩序](https://www.asuswebstorage.com/navigate/a/#/s/77D4BAD22D7E4286BE974F328C61109BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C5FD6BCCF7254BF9806674326C4F3A86Y)
+------------------------------------------------------
 * [姓资姓社-美国向何处去？](https://www.asuswebstorage.com/navigate/a/#/s/6A9873F9AE744DEB9E9E6E14601E26B8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/892A76F80A1D4E64A7AEC1F68977E15FY)
 ------------------------------------------------------
 * [理性与节制的新阶段：中美博弈中盘研判](https://www.asuswebstorage.com/navigate/a/#/s/0EDE378310744176B3B9ED4894095D9AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/32777DB814BD45B5B67F96C69A778116Y)
