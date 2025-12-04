@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [AI 时代的“饭碗”：人类还能做什么？](https://www.asuswebstorage.com/navigate/a/#/s/14499AAE08BE4B16A60F55A46BB6E0EAY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/21FB14F0ECB9499C805820DCBD645C80Y)
+------------------------------------------------------
 * [从英伟达财报透析中美博弈与“文明增长”——世界正在重塑：AI 驱动的第四次工业革命与新秩序](https://www.asuswebstorage.com/navigate/a/#/s/77D4BAD22D7E4286BE974F328C61109BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C5FD6BCCF7254BF9806674326C4F3A86Y)
 ------------------------------------------------------
 * [姓资姓社-美国向何处去？](https://www.asuswebstorage.com/navigate/a/#/s/6A9873F9AE744DEB9E9E6E14601E26B8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/892A76F80A1D4E64A7AEC1F68977E15FY)
