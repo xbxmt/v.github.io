@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [思考日本：出了埃及，现代文明是否就脱离了法老秩序](https://www.asuswebstorage.com/navigate/a/#/s/20CEF51F3CE441889ECBEBD981D15E1AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C1DF8FC7A9D442558446A13225F24002Y)
+------------------------------------------------------
 * [AI 时代的“饭碗”：人类还能做什么？](https://www.asuswebstorage.com/navigate/a/#/s/14499AAE08BE4B16A60F55A46BB6E0EAY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/21FB14F0ECB9499C805820DCBD645C80Y)
 ------------------------------------------------------
 * [从英伟达财报透析中美博弈与“文明增长”——世界正在重塑：AI 驱动的第四次工业革命与新秩序](https://www.asuswebstorage.com/navigate/a/#/s/77D4BAD22D7E4286BE974F328C61109BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C5FD6BCCF7254BF9806674326C4F3A86Y)
