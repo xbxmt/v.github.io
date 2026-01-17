@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [当统治叙事失效：从伊朗动荡看观念如何决定政权与文明的终局](https://www.asuswebstorage.com/navigate/a/#/s/5245FD9589D7440C889167544257B025Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/92E3FB2D4F214BE0A805774CF5927C93Y)
+------------------------------------------------------
 * [一个国家如何从富裕民主滑向“犯罪国家”？](https://www.asuswebstorage.com/navigate/a/#/s/8CCFA2C935BA44C9B9D3DA01D9BBE36CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/9C3F070E302D4225AA3A9409AE60668DY)
 ------------------------------------------------------
 * [三千年未有之新中国](https://www.asuswebstorage.com/navigate/a/#/s/F8A8EB6CCD9C46C8AD266E1261103A81Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/835086D65F834CEAA95E1E0812E55C15Y)
